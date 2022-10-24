@@ -1,3 +1,7 @@
+[< Previous](/mesh/mesh_1.md)
+
+---
+
 HPF8N1-E09 was startled by the movement of people on either side of him. The person assigned the bunk to his left clambered down, shaking the frame, the arches of her feet slapping against the plastic rungs of the ladder at the foot of the bed.
 
 E09’s head lifted up from the mattress, and it immediately dropped back down, expelling an audible groan he couldn’t control. His head was unbearably heavy. He couldn’t understand why. It was the same head, there was no helmet or other apparatus on it to weigh it down.
@@ -300,3 +304,7 @@ He had never explored his body like this before. It was a flood of new informati
 He grabbed onto his penis and was astonished to find it bigger than he remembered it. And a little stiffer too, like a muscle. He felt his whole body stretch involuntarily, shivering with energy.
 
 He relaxed totally and let his hand rest there, between his legs. The good feeling was magnitudes more powerful than the usual hypnagogic calm. Before another thought could cross his mind, he had drifted off to sleep, a loose, lopsided smile on his face.
+
+---
+
+[Next >](/mesh/mesh_3.md)
