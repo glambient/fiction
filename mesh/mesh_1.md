@@ -1,3 +1,7 @@
+[< Previous](/mesh/mesh_0.md)
+
+---
+
 A day in the life of HPF8N1-E09 was usually very much the same. It began in a long and narrow room with a low ceiling, sterile white walls, and large lighting panels that flickered on to signal morning. The hundreds of people contained in this room would arise from peaceful sleep, clambering out of individual bunk beds lined up in rows that stretched as far to each side as one could see — all those people wide awake, full of energy, and ready to work.
 
 After putting on a pair of form-fitting white shorts and an orange shirt, HPF8N1-E09 would join these people walking out of the dormitory, through individual doors for every short row of bunks. From there they would start to wander through a large maze of hallways and elevators to head to their respective working locations. Each worker had the long and often convoluted path to their places of employment perfectly memorized, so no one got lost or even stumbled into each other’s way. E09 sometimes wondered why they couldn’t put his quarters closer to his factory, but he was fine taking this walk all the same. It was just another part of his morning.
@@ -157,3 +161,7 @@ He inhaled, starting to panic.
 He reached out his arm to grasp a pole of the bed. He couldn’t believe that he was still here, in his quarters, wide awake, unable to do the most basic thing he had been able to do his whole life — instantly fall asleep. He moved his eyes around in every direction but could see only darkness.
 
 He laid there, terrified, feeling droplets of cold water rolling off his body and into the mattress, for what seemed like hours.
+
+---
+
+[Next >](/mesh/mesh_2.md)
