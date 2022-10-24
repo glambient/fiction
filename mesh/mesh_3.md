@@ -1,3 +1,7 @@
+[< Previous](/mesh/mesh_2.md)
+
+---
+
 HPF8N1-E09 went through his day in a distracted daze. As much as he tried to work on his regular business, he kept thinking about his head, which was starting to noticeably itch. He would touch the top of his head every so often and massage the rubber. It helped to spread some of the glue around his cranium, which seemed to have skin-soothing properties, not unlike the water of the nightly shower.
 
 He also thought about P43’s naked body, as well as his own. He constantly considered the way his own body moved and shifted, thinking about all those shapes, occasionally felt through his uniform at the way the ridges of his muscles changed in different poses. His legs would expand when he knelt on them, his arms would stiffen when he lifted his toolbox through a panel opening.
@@ -111,3 +115,7 @@ The force of the impact sent E09 sprawling out of his assailant’s grip, sidewa
 Each fist making contact was a moment of terror that dulled his senses. Every blow to his arms and body hurt more and more but mattered less and less. P43 continued to wail on him, barking and yelling, on and on, landing blow after blow as E09 thrashed about on the floor, kicking his legs wildly in a blind attempt to destabilize his attacker and escape his reach.
 
 A handful of people in nearby bunks whose fragile sleep had never been interrupted before, who were unaccustomed to _any_ unexpected bump in the night, were startled awake by the sounds of kicking and screaming. But they were lost and unseeing in the darkness, until the morning lights unceremoniously flickered on, several hours too early, and a deafeningly loud alarm that hadn’t been heard in years began to scream.
+
+---
+
+*To be continued...*
