@@ -9,7 +9,7 @@
 
 This work is currently unfinished.
 
-### Part I: Amp
+### Part I: Wires
 - [Prologue](/mesh/mesh_0.md)
 - [Day 1](/mesh/mesh_1.md)
 - [Day 2](/mesh/mesh_2.md)
